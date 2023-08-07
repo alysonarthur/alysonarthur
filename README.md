@@ -1,5 +1,5 @@
 # Olá, sou Alyson Barbosa :wave:
-Sou completamente apaixonado por tecnologia desde meu primeiro contato com um computador aos 9 anos. Atualmente estou cursando Ciências da Computação e rebuscando meu conhecimento a todo momento. Meu hobbie é tocar violão. Gosto muito de plantas e recorda a maneira que cuido daquilo que mais amo!
+Sou completamente apaixonado por tecnologia desde meu primeiro contato com um computador aos 9 anos. Atualmente estou cursando Ciências da Computação e rebuscando meu conhecimento a todo momento. Meu hobbie é tocar violão. Gosto muito de plantas, me recorda a maneira que cuido daquilo que mais amo!
 
 ### Conecte-se Comigo
 
